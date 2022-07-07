@@ -1,0 +1,2 @@
+# ideoma
+Entrepreneur
